@@ -2,3 +2,4 @@ This is a collection of Nintendo Switch cheat code posted at https://gbatemp.net
 compiled by the owner of the thread matias3ds.
 
  
+ 
